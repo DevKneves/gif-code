@@ -1,1 +1,0 @@
-!Alt text kneves.gif
